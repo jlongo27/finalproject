@@ -1,1 +1,1 @@
-# finalproject
+# Finalproject- Ski Resort- Everpeak Resort
